@@ -1,0 +1,2 @@
+# gamos
+Mahal ko to
